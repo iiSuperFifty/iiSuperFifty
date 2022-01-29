@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iiSuperFifty
+- 👀 I’m interested in roblox, FNF mods, and twitter!
+- 🌱 I’m currently learning FNF Modding!
+- 💞️ I’m looking to collaborate on roblox building!
+- 📫 How to reach me: 1. Go to my twitter https://twitter.com/BagORobux, 2. Friend me on Discord sleeping mario#7257!
