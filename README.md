@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @iiSuperFifty
-- 👀 I’m interested in roblox, FNF mods, and twitter!
-- 🌱 I’m currently learning FNF Modding!
+- 👀 I’m interested in Roblox, and Gorilla Tag!
+- 🌱 I’m currently learning how to actually install Gorilla Tag Mods! (Going well!)
 - 💞️ I’m looking to collaborate on roblox building!
